@@ -1,0 +1,2 @@
+Hanya hiburan semata
+
